@@ -26,10 +26,10 @@
 
 Windows电脑版：
 
-https://jscs.lanzouw.com/inrJl0u76n0h
+https://jscs.lanzouw.com/iUULz0udawpg
 
 Mac电脑版：
 
-https://jscs.lanzouw.com/ionhl0u76lid
+https://jscs.lanzouw.com/il7kc0udawsj
 
 
